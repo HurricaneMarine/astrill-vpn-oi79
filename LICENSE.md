@@ -1,4 +1,4 @@
-
+Enhance your Astrill VPN experience with instant Astrill VPN Addon | double-VPN + smart-DNS, the #1 addon. Includes double-VPN and smart-DNS for a safer and more private online
 
 
 
